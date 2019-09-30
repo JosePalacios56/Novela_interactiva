@@ -1,1 +1,1 @@
-aaaaaa
+Al abrir esta puerta se activa un mecanismo el cual bloquea la otra puerta. Cuando entras solo hay una habitacion en la que hay un ordenador con internet en el que tiene instalado el lol para que se eche unas partiditas antes de morir ya que en la habitacion se estaba respirando un veneno que lo mataria pasado 3 horas. Almenos morira flameando a su equipo.
