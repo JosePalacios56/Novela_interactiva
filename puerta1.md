@@ -1,2 +1,2 @@
-Al cruzar la puerta uno entras en otra sala, al entrar se encienden las luces y se ve que hay otra puerta pero esta parece bloqueada. En una pared hay dos palancas y una nota con una piesta que pone "Para salir deberas contestar adecuadamente una pregunta que es la siguiente. ¿Cual es el mejor sistema operativo para PC? [WINDOWS] [IOS]
+Al cruzar la puerta uno entras en otra sala, al entrar se encienden las luces y se ve que hay otra puerta pero esta parece bloqueada. En una pared hay dos palancas y una nota con una piesta que pone "Para salir deberas contestar adecuadamente una pregunta que es la siguiente. ¿Cual es el mejor sistema operativo para PC? [WINDOWS](https://github.com/JosePalacios56/Novela_interactiva/blob/master/windows) [IOS]
 
