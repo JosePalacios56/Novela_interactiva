@@ -1,0 +1,1 @@
+Escojes el hacha y tras ello, montones de robots salen hacia ti. Tú, con aquella arma que conseguiste y tus dotes de lucha, consigues destruirlos a todos tras minutos intensos de combate. Tras la pila de aquellos cadáveros robotónicos, consigues salir al exterior y buscas la primera señal de la civilización. Ahora toca sobrevivir por tu cuenta.
